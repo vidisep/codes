@@ -4,7 +4,7 @@ idk but the code are public now
 enjoy? i guess
 
 first look:
-![Image](https://github.com/vidisep/rcag/assets/142007077/9d2aabe3-3fdc-40ac-bfd0-c5bfba2db6a0)
+![Screenshot 2023-09-22 173303](https://github.com/vidisep/rcag/assets/142007077/98b8d619-31e7-4c29-a908-e800b2244f9e)
 
 
-by Chatgpt (ily so much) and vidisep
+by chatgpt (ily so much) and vidisep
