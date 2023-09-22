@@ -5,3 +5,6 @@ enjoy? i guess
 
 first look:
 ![Image](https://github.com/vidisep/rcag/assets/142007077/9d2aabe3-3fdc-40ac-bfd0-c5bfba2db6a0)
+
+
+by Chatgpt (ily so much) and vidisep
