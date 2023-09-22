@@ -1,2 +1,4 @@
-# codes
-am sori to rco2 devs if i stole the fps unlocker code ;(((((
+# roblox clientapp generator (still in progress)
+
+idk but the code are public now
+enjoy? i guess
